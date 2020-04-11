@@ -1,3 +1,4 @@
-# Welcome to my blog
+# MISSION to Digital Freedom
 
-I'm glad you are here. I plan to talk about ...
+I'd like to discuss how we can make a difference that would allow everyone the option to add delete and modify anything they rightfully obtain in a way that suits there needs and concerns to privacy
+
